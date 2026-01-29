@@ -67,10 +67,10 @@ I actively pursue free and valuable certifications to strengthen my skills:
 
 ## 📫 Contact Me
 I’m always open to collaboration, mentorship, or learning opportunities!  
-- **Email:** [your email]  
-- **Portfolio:** [your website link]  
-- **LinkedIn:** [your LinkedIn link]  
-- **GitHub:** [your GitHub link]  
+- **Email:** bmamta742@gmail.com 
+- **Portfolio:**   https://vx4ib0.mimo.run/index.html
+- **LinkedIn:**   https://www.linkedin.com/in/bkushagra742
+- **GitHub:** https://github.com/bkushagra742
 
 ---
 
